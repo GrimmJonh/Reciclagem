@@ -1,1 +1,1 @@
-# Distaque de lixo eletronico
+# Descarte Inteligente de Lixo Eletronico -- D.I.L.E
